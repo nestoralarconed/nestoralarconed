@@ -24,7 +24,7 @@ Diseñador gráfico centrado en branding y comunicación visual con +5 años de 
 
 ---
 
-## 📊 Estadísticas Profesionales (visual, seguro)
+## 📊 Estadísticas Profesionales
 
 | Métrica | Valor |
 |---:|:---|
