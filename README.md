@@ -62,7 +62,7 @@ Logramos +15% de crecimiento de audiencia y muchas playlists con jingles que tod
 - **+300%** aumento promedio de engagement en campañas (y cero memes accidentales en el proceso).  
 - **+15%** incremento en audiencia en medios digitales gracias a campañas bien segmentadas.  
 - **Rebranding internacional** que impulsó ventas récord para una marca de bebidas.  
-- **Premio no oficial:** sobrevivir a múltiples briefs de “hazlo más llamativo pero minimalista”.
+- **Premio no oficial:** sobrevivir a múltiples briefs de “Me gusta, pero métele más diseño”.
 
 ---
 
@@ -83,7 +83,7 @@ Logramos +15% de crecimiento de audiencia y muchas playlists con jingles que tod
 - **Comunicación Empresarial** – GCF Global  
 - **Tecnología y Robótica** – EduEC  
 
-_(Sí, también sé programar robots... pero solo si me dejan elegir la paleta de colores.)_
+_(Sí, también sé programar robots...)_
 
 ---
 
